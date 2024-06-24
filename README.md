@@ -1,1 +1,1 @@
-# JOSE BENJAMIN SALAZAR GARDUÑO
+# Practica Ganso Negro
